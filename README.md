@@ -1,9 +1,9 @@
 **A Private Club**
 
-_After I learned _
+After I learned
 
-_the secret handshake_
+the secret handshake
 
-_of the Partners in Misery,_
+of the Partners in Misery,
 
-_I saw it everywhere..._
+I saw it everywhere.
